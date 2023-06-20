@@ -1,0 +1,1 @@
+# PatikaDev_C-101_De-i-kenler
